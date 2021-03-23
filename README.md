@@ -1,1 +1,1 @@
-# Cititul-ca-o-art-
+# Cititul-ca-o-artă-
